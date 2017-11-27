@@ -1,0 +1,29 @@
+
+
+    title: 'to accept the goal of healing social divide'
+    layout: post
+    guid: urn:uuid:f3011bc1-aeeb-4f8e-ba46-8fd5e17ba236
+    tags:
+        - politics
+
+## To accept the goal of “healing social divide” is ...
+
+
+
+There is nothing more idealistic than the rhetoric of “healing social divide”. Initially a buzzword of governmental campaigns, it has now become not only part of the formal administration agenda, but also a consensual goal shared among the conservatives, pan-democratic party politicians and their supporters, and a fair share of intellectuals.
+
+To show why this is idealism, let us first recognise that this idealism is merely a fantasy that resides in the minds of pan-democrats but not the administration (not to mention the CCP). If “healing social divide” means “compromise”, the pan-democrats have made their greatest gesture of “compromise” this spring by wholeheartedly supporting John Tsang: a centrist bureaucrat who had and will never deviate from the CCP rule-book, who is favourable to business interests, and who puts “healing social divide” as his no.1 item in his political agenda. But this gesture was not simply rejected, but brutally ignored. Carrie Lam, a candidate hated by all except the most conservative and authoritarian factions, a candidate who has made no effort to even pretend to communicate (as shown in her refusal to visit TSW and answer questions from journalists) or to compromise, is chosen instead. Does the CCP not know that John could “heal social divide” more effectively?
+
+The response is simple. Unlike us, CCP is truly pragmatic: “healing social divide” does not refer to idealistic buzzwords such as “compromise” or “harmony”; it refers to the pragmatic aim of “total social control”. It is not a coincidence that immediately after the crowning of Carrie Lam comes the prosecution of activist leaders of the Umbrella Movement. To the CCP ruling factions and to Hong Kong’s home grown administrative elites, “social divide” is a managerial problem, a negative factor to be removed from the equation, a virus to be eliminated from the body via anti-biotics. To “heal social divide”is to employ a wide set of apparatuses: education, jurisdiction, police, prison and propaganda. To put it more starkly: TO HEAL SOCIAL DIVIDE IS TO RE-IMPOSE ARTICLE 23-all forms of speech which threaten the ruling regime must be treated as virus, and be neutralised before they infect the rest of the social body.
+
+To the regime which aims to “heal social divide”, citizens are but objects of management. Objects to be kept in position, to be kept from division; objects to be managed, monitored, and adjusted; deviating objects to be eliminated. To be healed is to give up one’s human status, and adopt the new status of an object closely administered by a set of apparatuses.
+
+One may ask, but can we not re-define the meaning of “healing social divide” in our own terms?
+
+The first reason why that is impossible is that “compromise” presupposes reciprocity. However, we are placed in a political hierarchy in which reciprocity is not needed nor given. The Legislative Council is held hostage by the functional constituencies, and nothing opposed to the interests of the ruling regime of CCP and business tycoons could ever get passed. Every single layer of the executive department and commission is dominated by bureaucracy and vested interests. The representation and consultation in commissions, such as that for Minimum Wage Adjustment, are merely symbolic and not accountable nor transparent (lately even the attempt to maintain that symbolic image is abandoned). Within such unequally structured relations of power, there is no point in talking about compromises if the other side never plans to reciprocate in any sense other than that of social control.
+
+But the graver danger is this: in agreeing that this is a problem of social divide, we agree to the underlying framing that this is a problem of relationship, of attitude, of mentality as if such divisions come out from nowhere (other than the ill will of activists and politicians), and we risk erasing the deeper structural inequalities in our society. We risk forgetting that the divide is not “us being unfriendly”, but is an economic divide in which teenagers lack mobility and meaning, elderly lack shelter and care, and numerous marginalised groups face discrimination without any form of support; that it is also a political divide in which we feel powerless, in which we lose control over our identity, our community and our freedom of association and speech while a small group of undeserved appointees trade all of these away for their own conveniences. We risk labelling any voice that brings up these structural problems as deviant voices, as viruses that destroy our “social health”, viruses that need to be destroyed.
+
+But I am not a pessimist. The very fact that “healing social divide” has become the top of the administration’s agenda means that we, and our past efforts, have posed a legible threat to the CCP that requires a resolution. This is CCP’s last and desperate attempt to domesticate this threat into a relationship issue, a managerial issue, and a social cohesion issue. The pragmatic path from now on is to defy any managerial attempts from the government and to demonstrate that this is a problem that cannot be resolved without the government actually engaging with the structural issues and engaging with Hong Kongers as humans, but not as objects.
+
+To accept “healing social divide” is to allow the regime to run away from this engagement and allow oneself to slip to the status of objects. Please, don’t.
